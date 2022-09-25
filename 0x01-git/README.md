@@ -1,1 +1,1 @@
-my second commit, se
+I LOVE CODING, SOFTWARE ENGINEERING
